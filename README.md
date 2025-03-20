@@ -9,7 +9,7 @@ With 4 years of experience in architecture, I’ve spent years shaping physical 
 
 Beyond the screen, you’ll find me exploring new places, capturing stories through my lens, and constantly seeking inspiration from the world around me. Travel and photography fuel my creativity and give me fresh perspectives that reflect in my work.
 
-</p> -->
+</p>
 
 ## 📚 My Skills:
 
